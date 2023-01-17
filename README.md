@@ -1,2 +1,2 @@
 # BAGIETKOWE
-na testy
+na testy skun marihuana dobre geeesy
